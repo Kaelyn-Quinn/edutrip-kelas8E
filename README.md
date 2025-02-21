@@ -1,1 +1,1 @@
-# edutrip-kelas8E
+# Edutrip Kelas 8E
